@@ -42,9 +42,7 @@ Dedicated, reliable, and tenacious professional with two Bachelor’s degrees, o
 
 ## 📞 Contact Information
 
-* Email: [theresa.maria@example.com](mailto:theresa.maria@example.com)
 * LinkedIn: [Theresa Maria Breitfuss](https://www.linkedin.com/in/theresa-maria-breitfuss/)
-* Portfolio Website: [www.theresamariabreitfuss.com](http://www.theresamariabreitfuss.com/)
 
 ## 🌐 Additional Information
 
